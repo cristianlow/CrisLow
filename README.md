@@ -1,5 +1,5 @@
 # CrisLow
-### Here is what am currently worokingn ON!
+### Here is what am currently working ON!
 
 
 I'm currently working on . . .  Graphich design programs
